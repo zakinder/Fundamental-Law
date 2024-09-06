@@ -1,5 +1,5 @@
 # Fundamental-Law
-    The Fundamental Law Respect Quran And Cube And Dome And Pillars
+    The Fundamental Law Respect Quran And Cube And Dome And Pillars And FreedomOfSpeechNation(Granted)
     Life Is Approximation Such Create Light Morning Fog Begin
     Bow Is Illegal
     Gabriel Or Jebrial Or Begin 4TH Never Ending Azab ForeverLoop(Kursi).
